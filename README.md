@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rajavarman15
 - 👀 I’m interested in Data science 
 - 🌱 I’m currently learning Btech ai&ds 
-- 📫 How to reach me _sans__fallen_ My Instagram id
+- 📫 How to reach me on  _sans__fallen_ My Instagram id
 
 
 <!---
